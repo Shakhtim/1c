@@ -1,1 +1,1 @@
-# 1c https://tamirlanshakh.github.io/1c/
+# 1c https://shakhtim.github.io/1c/
